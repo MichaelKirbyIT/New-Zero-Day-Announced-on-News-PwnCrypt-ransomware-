@@ -1,0 +1,1 @@
+# Scenario-4-New-Zero-Day-Announced-on-News-PwnCrypt-ransomware-
